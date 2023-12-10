@@ -5,7 +5,6 @@ date: '2023-09-25T17:44:44+00:00'
 author: Ken
 layout: post
 guid: 'http://www.lifebydictionary.com/?p=1343'
-permalink: '/?p=1343'
 footnotes:
     - ''
 categories:

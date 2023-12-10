@@ -5,7 +5,6 @@ date: '2023-01-19T11:59:45+00:00'
 author: Ken
 layout: post
 guid: 'http://www.lifebydictionary.com/?p=1298'
-permalink: '/?p=1298'
 categories:
     - 'Dream Journal'
     - Stories

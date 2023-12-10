@@ -5,7 +5,6 @@ date: '2023-03-28T22:41:58+00:00'
 author: Ken
 layout: post
 guid: 'http://www.lifebydictionary.com/?p=1377'
-permalink: '/?p=1377'
 categories:
     - 'The Ending'
 ---

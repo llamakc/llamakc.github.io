@@ -5,7 +5,6 @@ date: '2022-11-14T17:24:13+00:00'
 author: Ken
 layout: post
 guid: 'https://lifebydictionary.com/?p=1180'
-permalink: '/?p=1180'
 categories:
     - Recovery
     - 'The Ending'

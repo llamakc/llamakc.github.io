@@ -5,7 +5,6 @@ date: '2022-07-22T15:54:42+00:00'
 author: Ken
 layout: post
 guid: 'https://lifebydictionary.com/?p=1022'
-permalink: '/?p=1022'
 categories:
     - 'Life by Dictionary, a novel'
     - Photographs

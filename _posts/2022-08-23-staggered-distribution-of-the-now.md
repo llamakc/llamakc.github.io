@@ -5,7 +5,6 @@ date: '2022-08-23T22:44:44+00:00'
 author: Ken
 layout: post
 guid: 'https://lifebydictionary.com/?p=1087'
-permalink: '/?p=1087'
 categories:
     - 'Dream Journal'
     - Recovery

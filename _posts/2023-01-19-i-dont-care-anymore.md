@@ -5,7 +5,6 @@ date: '2023-01-19T17:17:36+00:00'
 author: Ken
 layout: post
 guid: 'http://www.lifebydictionary.com/?p=1307'
-permalink: '/?p=1307'
 categories:
     - Stories
     - 'The Ending'

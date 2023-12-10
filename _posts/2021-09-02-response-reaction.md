@@ -5,7 +5,6 @@ date: '2021-09-02T13:04:49+00:00'
 author: Ken
 layout: post
 guid: 'https://www.lifebydictionary.com/wordpress/?p=849'
-permalink: '/?p=849'
 categories:
     - Recovery
 ---

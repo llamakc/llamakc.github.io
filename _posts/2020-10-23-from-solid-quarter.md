@@ -5,7 +5,6 @@ date: '2020-10-23T12:06:47+00:00'
 author: Ken
 layout: post
 guid: 'https://lifebydictionary.com/?p=377'
-permalink: '/?p=377'
 categories:
     - Other
     - Poetry

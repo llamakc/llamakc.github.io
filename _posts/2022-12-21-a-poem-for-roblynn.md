@@ -5,7 +5,6 @@ date: '2022-12-21T03:24:42+00:00'
 author: Ken
 layout: post
 guid: 'http://www.lifebydictionary.com/?p=1258'
-permalink: '/?p=1258'
 categories:
     - Poetry
 ---

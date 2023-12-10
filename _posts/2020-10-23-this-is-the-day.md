@@ -5,7 +5,6 @@ date: '2020-10-23T20:34:22+00:00'
 author: Ken
 layout: post
 guid: 'https://lifebydictionary.com/?p=382'
-permalink: '/?p=382'
 categories:
     - 'Life by Dictionary, a novel'
     - Other

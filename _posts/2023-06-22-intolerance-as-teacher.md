@@ -5,7 +5,6 @@ date: '2023-06-22T03:32:53+00:00'
 author: Ken
 layout: post
 guid: 'http://www.lifebydictionary.com/?p=1404'
-permalink: '/?p=1404'
 categories:
     - 'Dream Journal'
     - 'The Ending'

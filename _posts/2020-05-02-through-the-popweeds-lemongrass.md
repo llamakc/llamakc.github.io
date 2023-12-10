@@ -5,7 +5,6 @@ date: '2020-05-02T10:54:54+00:00'
 author: Ken
 layout: post
 guid: 'https://lifebydictionary.com/?p=219'
-permalink: '/?p=219'
 categories:
     - Other
 ---

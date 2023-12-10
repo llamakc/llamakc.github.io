@@ -5,7 +5,6 @@ date: '2023-01-08T12:38:37+00:00'
 author: Ken
 layout: post
 guid: 'http://www.lifebydictionary.com/?p=1290'
-permalink: '/?p=1290'
 categories:
     - Pandemic
     - 'The Ending'

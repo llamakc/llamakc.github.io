@@ -5,7 +5,6 @@ date: '2022-07-30T12:07:19+00:00'
 author: Ken
 layout: post
 guid: 'https://lifebydictionary.com/?p=1055'
-permalink: '/?p=1055'
 categories:
     - Pandemic
     - Recovery

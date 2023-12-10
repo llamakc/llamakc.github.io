@@ -5,7 +5,6 @@ date: '2022-12-17T16:40:17+00:00'
 author: Ken
 layout: post
 guid: 'http://www.lifebydictionary.com/?p=1244'
-permalink: '/?p=1244'
 categories:
     - Photographs
     - 'The Ending'

@@ -5,7 +5,6 @@ date: '2022-04-21T10:57:19+00:00'
 author: Ken
 layout: post
 guid: 'https://lifebydictionary.com/?p=941'
-permalink: '/?p=941'
 categories:
     - Photographs
     - Recovery

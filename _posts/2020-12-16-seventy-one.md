@@ -5,7 +5,6 @@ date: '2020-12-16T10:35:52+00:00'
 author: Ken
 layout: post
 guid: 'https://lifebydictionary.com/?p=498'
-permalink: '/?p=498'
 categories:
     - Pandemic
     - Photographs

@@ -5,7 +5,6 @@ date: '2021-02-02T11:43:10+00:00'
 author: Ken
 layout: post
 guid: 'https://lifebydictionary.com/?p=551'
-permalink: '/?p=551'
 categories:
     - 'Dream Journal'
     - Pandemic

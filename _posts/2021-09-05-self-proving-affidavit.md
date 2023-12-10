@@ -5,7 +5,6 @@ date: '2021-09-05T10:48:26+00:00'
 author: Ken
 layout: post
 guid: 'https://www.lifebydictionary.com/wordpress/?p=859'
-permalink: '/?p=859'
 categories:
     - 'Life by Dictionary, a novel'
     - Photographs
