@@ -1,6 +1,6 @@
 ---
 id: 1409
-title: 'The warthog who chose to sing and the mockingbird who couldn&#8217;t'
+title: 'The warthog who chose to sing and the mockingbird who could not'
 date: '2023-07-21T10:18:28+00:00'
 author: Ken
 layout: post
