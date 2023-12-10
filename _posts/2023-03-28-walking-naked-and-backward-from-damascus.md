@@ -1,6 +1,6 @@
 ---
 id: 1377
-title: 'Walking naked &#038; backward from Damascus'
+title: 'Walking naked and backward from Damascus'
 date: '2023-03-28T22:41:58+00:00'
 author: Ken
 layout: post
