@@ -1,6 +1,6 @@
 ---
 id: 1244
-title: 'I&#8217;ve Turned My Back On Myself'
+title: "I've Turned My Back On Myself"
 date: '2022-12-17T16:40:17+00:00'
 author: Ken
 layout: post
