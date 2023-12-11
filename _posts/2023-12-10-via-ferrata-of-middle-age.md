@@ -7,6 +7,12 @@ categories: poetry
 
 Tell me where affection hides \\
 in the middle of each night \\
+
 between dirty laundry sinked \\
-or dishes that clang in the dryer&#151; \\
-placeholder 
+or dishes clang in the dryer&#151; \\
+
+happentsance of snazzy socks \\
+and comfortable, smart shoes, \\
+
+what errata 
+
