@@ -6,16 +6,16 @@ categories: poetry
 hidden: true
 ---
 
-Tell me where affection hides   
-in the spare of middle night   
-between dirty laundry sinked  
-and dishes to clang in the dryer&#151;  
-my rakish socks, futureless shoes 
- \\
-\\
+Tell me if affection hides in the spare   
+of middle night between more laundry sinked    
+and dishes clanging in the dryer&#151; rakish socks,  
+futureless shoes recline for an early coffee pot  
+*I find your hair in the strangest of best places*
+
 asdf \\
 FREEWRITE  
-inclined for tomorrow's coffee pot 
+
+
 and to share a dream of third grade
 in October&#151;Mrs. Kunde's class won
 the largest pumpkin contest and Brandon
@@ -31,4 +31,3 @@ think about her lost kiss or the pumpkin
 but here I am telling you of unrequited love
 and how another boy always ruins a good thing
 
-*I find your hair in the strangest of best places*

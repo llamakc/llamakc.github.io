@@ -31,8 +31,11 @@ github_username: llamakc
 
 # Build settings
 theme: minima
+# remote_theme: jekyll/minima
+# skin: dark
 plugins:
-  - jekyll-feed
+  - jekyll-feed 
+# - jekyll-remote-theme
 
 # Exclude from processing.
 # The following items will not be processed, by default.
