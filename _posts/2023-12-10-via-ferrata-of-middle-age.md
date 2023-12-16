@@ -10,13 +10,12 @@ Tell me if affection hides in the spare
 of middle night between more laundry sinked    
 and dishes clanging in the dryer&#151; rakish socks,  
 futureless shoes recline for an early coffee pot  
-*I find your hair in the strangest of best places*
+*I find your hair in the strangest of best places*  
 
-asdf \\
-FREEWRITE  
-
-
-and to share a dream of third grade
+  
+--- 
+<br/>
+~~and to share a dream of third grade
 in October&#151;Mrs. Kunde's class won
 the largest pumpkin contest and Brandon
 spent an entire afternoon with pencils
@@ -29,5 +28,5 @@ since I sat closest to our prized pumpkin.
 I never kissed her and I thought I didn't 
 think about her lost kiss or the pumpkin
 but here I am telling you of unrequited love
-and how another boy always ruins a good thing
+and how another boy always ruins a good thing~~
 

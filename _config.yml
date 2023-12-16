@@ -31,6 +31,7 @@ github_username: llamakc
 
 # Build settings
 theme: minima
+# remote_theme: jekyll/cayman
 # remote_theme: jekyll/minima
 # skin: dark
 plugins:
