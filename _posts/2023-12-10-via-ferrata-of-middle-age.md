@@ -12,7 +12,9 @@ and dishes clanging in the dryer&#151; rakish socks,
 futureless shoes recline for an early coffee pot  
 *I find your hair in the strangest of best places*  
 
-  
+Ask me  
+...  
+Tell me     
 --- 
 <br/>
 ~~and to share a dream of third grade
