@@ -12,7 +12,8 @@ and dishes clanging in the dryer&#151; rakish socks,
 futureless shoes recline for an early coffee pot  
 *I find your hair in the strangest of best places*  
 
-Ask me  
+Ask me where I've been when I appear lost&#151;  
+ 
 ...  
 Tell me     
 --- 
