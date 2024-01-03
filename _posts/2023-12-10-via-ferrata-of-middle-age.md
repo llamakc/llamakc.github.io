@@ -7,14 +7,16 @@ hidden: true
 ---
 
 Tell me if affection hides in the spare   
-of middle night between more laundry sinked    
+of middle night between lazy laundry sinked    
 and dishes clanging in the dryer&#151; rakish socks,  
 futureless shoes recline for an early coffee pot  
 *I find your hair in the strangest of best places*  
 
 Ask me where I've been when I appear lost&#151;  
-*antecessor ex machina* or heartburn heart again,  
-asdf asdf asdf
+The crow taps a window to trade this heartburn   
+heart again for a coin and loose cigarette as  
+*antecessor ex machina* hold the world mute,  
+what's a dream you never wake from&#151;  
 ...  
 Tell me     
 --- 
