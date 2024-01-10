@@ -13,10 +13,10 @@ futureless shoes recline for an early coffee pot
 *I find your hair in the strangest of best places*  
 
 Ask me where I've been when I appear lost&#151;  
-The crow taps a window to trade this heartburn   
-heart again for a coin and loose cigarette as  
+Crows tap the window to trade this heartburn   
+heart again for coins and loose cigarettes while  
 *antecessor ex machina* hold the world mute,  
-what's a dream you never wake from&#151;  
+another dream you never wake from&#151;  
 ...  
 Tell me     
 --- 

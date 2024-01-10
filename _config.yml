@@ -19,8 +19,8 @@
 ---
 title: Life by Dictionary
 email: kennethlewis.clark@gmail.com
-description: >- # this means to ignore newlines until "baseurl:"-<
-  domain: llamakc.github.io
+description: "memory besom"
+domain: llamakc.github.io
 # baseurl: "" # the subpath of your site, e.g. /blog
 url: "https://llamakc.github.io"  #  the base hostname & protocol
 #  BASE_PATH:
