@@ -14,11 +14,14 @@ futureless shoes recline for an early coffee pot
 
 Ask me where I've been when I appear lost&#151;  
 Crows tap the window to trade this heartburn   
-heart again for coins and loose cigarettes while  
-*antecessor ex machina* hold the world mute,  
+heart again for coins or loose cigarettes while  
+*antecessor ex machina* hold the xxxxxxx world  
+mute and declare right of first survival
+
+~~generational curses
 another dream you never wake from&#151;  
 ...  
-Tell me     
+Tell me~~
 --- 
 <br/>
 ~~and to share a dream of third grade
