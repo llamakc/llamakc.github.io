@@ -5,20 +5,20 @@ layout: post
 categories: poetry
 ---
 
-Tell me if affection hides in the spare   
+Tell me if our affection hides in the spare   
 of middle night between lazy laundry sinked    
 
-and dishes clanging in the dryer&#151;rakish socks,  
-futureless shoes recline for an early coffee pot  
+and dishes clanging in the dryer&#151;rakish socks  
+futureless shoes in recline for an early coffee pot  
 
 *I find your hair in the strangest of best places*  
 Ask me where I've been when I appear lost&#151;  
 
-Crows tap the window to trade this heartburn   
+Crows tap the claggy window to trade heartburn   
 heart again for coins or loose cigarettes while  
 
 *antecessor ex machina* hold this grawlix world  
-mute and declare right of first survival
+stone mute and declare right of first survival
 
 ~~generational curses
 another dream you never wake from&#151;  
