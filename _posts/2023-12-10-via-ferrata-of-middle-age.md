@@ -3,19 +3,21 @@ title:  "Via Ferrata of Middle Age"
 date:  '2023-12-10'
 layout: post
 categories: poetry
-hidden: true
 ---
 
 Tell me if affection hides in the spare   
 of middle night between lazy laundry sinked    
-and dishes clanging in the dryer&#151; rakish socks,  
-futureless shoes recline for an early coffee pot  
-*I find your hair in the strangest of best places*  
 
+and dishes clanging in the dryer&#151;rakish socks,  
+futureless shoes recline for an early coffee pot  
+
+*I find your hair in the strangest of best places*  
 Ask me where I've been when I appear lost&#151;  
+
 Crows tap the window to trade this heartburn   
 heart again for coins or loose cigarettes while  
-*antecessor ex machina* hold the xxxxxxx world  
+
+*antecessor ex machina* hold this grawlix world  
 mute and declare right of first survival
 
 ~~generational curses
