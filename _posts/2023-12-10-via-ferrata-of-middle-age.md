@@ -22,6 +22,7 @@ stone mute and declare right of first survival
 
 ~~generational curses
 another dream you never wake from&#151;  
+tinnitus vs unborn heartbeat ultrasound
 ...  
 Tell me~~
 --- 
