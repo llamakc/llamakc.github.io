@@ -30,6 +30,7 @@ github_username: llamakc
 # Build settings
 # theme: jekyll-theme-modernist
 theme: minima
+# theme: just-the-docs
 plugins:
    - jekyll-feed
 #  - jekyll-remote-theme
