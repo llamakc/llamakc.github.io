@@ -20,10 +20,10 @@ heart again for coins or loose cigarettes while
 *antecessor ex machina* hold this grawlix world  
 stone mute and declare right of first survival.
 
-Tell me the cockcrow tugboat blast gapes  
+Tell me  if the cockcrow tugboat blast gapes  
 each porous veil of fever dreams to . . .  
   
-
+~~~Pull apart the entire above four lines and personalize PLEASE~~~
 
 
 
