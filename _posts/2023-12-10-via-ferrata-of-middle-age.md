@@ -9,25 +9,37 @@ Tell me if our affection hides in the spare
 of middle night between lazy laundry sinked    
 
 and dishes clanging in the dryer&#151;rakish socks  
-futureless shoes in recline for an early coffee pot  
+futureless shoes recline for an early coffee pot  
 
 *I find your hair in the strangest of best places*  
-Ask me where I've been when I appear lost.  
+Ask me where I've been when I appear lost  
 
-Crows tap the claggy window to trade heartburn   
-heart again for coins or loose cigarettes while  
+Crows tap a claggy window to trade heartburn   
+heart again for coin or loose cigarettes while  
 
 *antecessor ex machina* hold this grawlix world  
-stone mute and declare right of first survival.
+stone mute and declare right of first survival
 
-Tell me  if the cockcrow tugboat blast gapes  
-each porous veil of fever dreams to . . .  
+Tell me the tugboat's cockcrow horn wakes us  
+to the car crash or trashcan sonata outside
+
+3  
+4  
+
+5  
+Ask me  
+
+2  
+3  
+
+4  
+5
+
+ 
+
+
+~~porous veil of fever dreams~~ 
   
-~~~Pull apart the entire above four lines and personalize PLEASE~~~
-
-
-
-
 ~~generational curses
 another dream you never wake from&#151;  
 tinnitus vs unborn heartbeat ultrasound
