@@ -17,11 +17,11 @@ Ask me where I've been when I appear lost
 Crows tap a claggy window to trade heartburn   
 heart again for coin or loose cigarettes while  
 
-*antecessor ex machina* hold this grawlix world  
+*antecessor ex machina* hold our grawlix world  
 stone mute and declare right of first survival
 
-Tell me the tugboat's cockcrow horn wakes us  
-to the car crash or trashcan sonata outside
+Tell me the tugboat's cockcrow wakes us  
+to the car crash trashcan cantata outside
 
 3  
 4  
