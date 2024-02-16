@@ -21,17 +21,17 @@ heart again for coin or loose cigarettes while
 stone mute and declare right of first survival
 
 Tell me the tugboat's cockcrow wakes us  
-to a car crash trashcan cantata outside
+to crashed cars, a trashcan cantata outside
 
-and our gerrymandered exclusion zones  
-now dissolve; ~~work back to affection~~      
+and our ~~gerrymandered exclusion zones  
+dissolve; work back to affection~~      
 4  
 
 5  
 Ask me if sadness begins or ends here;   
-the brinicles melted   
+the brinicles run in reverse; ask me  
 
-2  
+did this take too long to admit:  
 3  
 
 4  
