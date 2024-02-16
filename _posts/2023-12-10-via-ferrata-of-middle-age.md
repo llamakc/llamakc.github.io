@@ -28,10 +28,10 @@ dissolve; work back to affection~~
 4  
 
 5  
-Ask me if sadness begins or ends here;   
-the brinicles run in reverse; ask me  
+Ask me if sadness begins or ends here   
+as the brinicles run in reverse; ask me  
 
-did this take too long to admit:  
+did this take long to admit:  
 3  
 
 4  
