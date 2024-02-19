@@ -31,7 +31,7 @@ dissolve; work back to affection~~
 Ask me if sadness begins or ends here   
 as the brinicles run in reverse; ask me  
 
-did this take long to admit:  
+if this takes long to admit:  
 3  
 
 4  
