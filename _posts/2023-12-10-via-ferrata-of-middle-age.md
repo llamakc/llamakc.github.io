@@ -24,7 +24,7 @@ Tell me the tugboat's cockcrow wakes us
 to crashed cars, a trashcan cantata outside
 
 Ask me if sadness begins or ends here   
-as the brinicles run in reverse; ask me  
+as the brinicles drag bottom up; ask me  
 
 if this takes longer to admit:  
 love always runs reverse
