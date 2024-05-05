@@ -26,6 +26,9 @@ to crashed cars, a trashcan cantata outside
 Ask me if sadness begins or ends here   
 as the brinicles drag bottom up; ask me  
 
-if this takes longer to admit:  
-love always runs reverse
+if cruelty as currency  *(anecdote here)* 
+
+takes longer to admit
+
+
 
