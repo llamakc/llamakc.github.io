@@ -27,7 +27,7 @@ Ask me if sadness begins or ends here
 as the brinicles drag bottom up; ask me  
 
 if cruelty as currency whispers *I am  
-I am the key to tumble this lock* 
+the key, I am to tumble this lock* 
 
 
 
