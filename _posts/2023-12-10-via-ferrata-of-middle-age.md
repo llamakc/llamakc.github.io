@@ -26,9 +26,9 @@ to crashed cars, a trashcan cantata outside
 Ask me if sadness begins or ends here   
 as the brinicles drag bottom up; ask me  
 
-if cruelty as currency  *(anecdote here)* 
+if cruelty as currency whispers *I am  
+I am the key to tumble this lock* 
 
-takes longer to admit
 
 
 
