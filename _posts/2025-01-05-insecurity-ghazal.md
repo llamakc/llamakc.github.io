@@ -5,9 +5,8 @@ layout: post
 categories: poetry
 ---
 
-Tell me if affection hides in the spare   
-of middle night between laundry sinked    
-
+Placeholder
+of ghazal to come
 
 
 
